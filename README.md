@@ -26,11 +26,8 @@ MSE
 ![image](https://github.com/user-attachments/assets/d39bcd4a-dcd9-4005-8911-d9009b609d8f)
 
 ## Indivisual Result
-![image](https://github.com/user-attachments/assets/8c14735c-1e9a-4c01-880c-66ee3dc54e39)
-![image](https://github.com/user-attachments/assets/13ad96e9-3567-4f45-be48-7dfbd23fce4a)
-![image](https://github.com/user-attachments/assets/453bf891-05dd-4c28-8185-813ac5c1c887)
-![image](https://github.com/user-attachments/assets/09233740-ee17-4f95-a703-a5eb9bfb14b5)
-![image](https://github.com/user-attachments/assets/dbc179b2-7777-48f1-9c59-19f10f2f56b3)
+![image](https://github.com/user-attachments/assets/2878ee45-f460-4b85-8aa1-b04a27d42cd0)
+
 
 
 

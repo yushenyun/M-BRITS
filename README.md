@@ -26,7 +26,8 @@ MSE
 ![image](https://github.com/user-attachments/assets/d39bcd4a-dcd9-4005-8911-d9009b609d8f)
 
 ## Indivisual Result
-![image](https://github.com/user-attachments/assets/2878ee45-f460-4b85-8aa1-b04a27d42cd0)
+![image](https://github.com/user-attachments/assets/ce5623b1-023f-4a2c-934e-8b692ae749be)
+
 
 
 
